@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with scalping bot for derivatives rare Strategy | slippage-control & API-integration. Featuring slippage-control and API-integration,
 
 
 
